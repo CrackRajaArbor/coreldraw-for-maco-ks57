@@ -1,4 +1,4 @@
-# 
+# professional Panel for CorelDRAW for macOS - cloud sync and custom brushes is the best CorelDRAW for macOS panel, featuring cloud sync and custom brushes. Safe, efficient, and
 
 
 
